@@ -6,4 +6,3 @@
 - 📫 ig: @zzerlen | x: @zzerlen_
 - 😄 Pronouns: He / Him
 - ⚡ Fun fact: likes to play video games :)
--->
